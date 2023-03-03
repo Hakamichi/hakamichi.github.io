@@ -18,6 +18,9 @@ What am I going to do now? Well, I'm not exactly sure. But I plan on returning a
 ## General Info about me
 
 Age: 20
+
 Pronouns: He/Him, They/Them
+
 Languages: English, Spanish
+
 Favorite Colors: Grey and Black, they're not colors, right? Whatever.
